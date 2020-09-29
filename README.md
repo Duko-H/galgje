@@ -12,3 +12,4 @@
 ## Beurten 
 
 Ik raad een K (no)
+Ik raad een A 
